@@ -1,2 +1,0 @@
-# HobbyConnect
-HOBBY CONNECT
